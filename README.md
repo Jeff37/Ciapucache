@@ -11,11 +11,14 @@ Więc poszedł ON – i jako jedyny szedł za głosem tak daleko aż ten doprowa
 
 Był ranny i schronił sie w szałasie z gałęzi gdzie odpoczął.  
 
-pic szalas
+*Szałas*  
+![Szalas](./Pics/DSCN0540.JPG)  
 
 "To tu to tam" poprowadziło go do leżącego pnia koło szałasu  
 
-pic log
+*Dla Antka*  
+![Antek](./Pics/DSCN0537.JPG)  
+
 
 i już, już miał ten pień odsunąć kiedy zazdrosny Rywal (zwany „Rywalem Zazdrosnym”) rzucił się na niego z mieczem.  
 A wtedy burza się rozpętała i trzęsienie ziemi i powódź i zaćmienie słońca i 7 plag Egipskich oraz  wielki pożar ogarnął Puszczę.  
@@ -25,32 +28,38 @@ No i nie zobaczył Ciaputa Śmiały co było pod pniem, aaa…. Był tam skarb.
 I kiedy przy tym pniu odwrócisz się do tyłu były jeszcze dwa skarby  
 „to tu”  
 
-[Zosia_Before](./Pics/2020-04-06T15:24:58_1.JPG)  
+*Dla Zosi*  
+![Zosia_Before](./Pics/2020-04-06T15:24:58_1.JPG)  
 
-[Zosia_After](./Pics/2020-04-06T15:25:40_1.JPG)  
+
+![Zosia_After](./Pics/2020-04-06T15:25:40_1.JPG)  
 
 
 „to tam”.   
 
-[Rodznia](./Pics/2020-04-06T15:27:10_1.JPG)  
+*Dla rodziny*  
+![Rodznia](./Pics/2020-04-06T15:27:10_1.JPG)  
 
 i kolejne... looking to the west in standing dead birch with Polyporus... there is log resting laying and hiding something underneath  
 
-[Piotrek](./Pics/2020-04-06T15:32:58_1.JPG)  
-[Piotrek](./Pics/2020-04-06T15:32:42_1.JPG)  
+*Dla Piotrka*  
+![Piotrek](./Pics/2020-04-06T15:32:58_1.JPG)  
+![Piotrek](./Pics/2020-04-06T15:32:42_1.JPG)  
 
-Indic FR
+A bit farther to the West, among the even-aged pines, you'll find a dead standing leftover of the trunk where, inside, the moss hides something.  
 
-[Kubus_far](./Pics/2020-04-06T15:48:06_1.JPG)  
-[Kubus_close](./Pics/2020-04-06T15:42:40_1.JPG)  
+*Dla Kubusia*  
+![Kubus_far](./Pics/2020-04-06T15:48:06_1.JPG)  
+![Kubus_close](./Pics/2020-04-06T15:42:40_1.JPG)  
+
+Une fois revenu près de la plage de sable, en haut de la colline, tu trouveras un arbre bifide au creux duquel la dernière surprise se cache.  
+
+*Dla Kasi*  
+![Kasia](./Pics/2020-04-06T15:54:19_1.JPG)  
 
 
 Jak głosi Legenda tylko potomkowie Ciaputy Śmiałego (i jego  Żona – też Rodzina) mogą odnaleźć to co dla nich zachowała Puszcza…
 A gdzie…?  „TO TU”, „TO TAM” 
 podążaj za wskazówkami..... 
 
-:sparkles: for nice decorations  
-:metal:  
-
-:octocat:  
 
